@@ -1,0 +1,1 @@
+# Algoritmo-de-Transla-o-Shear-e-Reflex-o
